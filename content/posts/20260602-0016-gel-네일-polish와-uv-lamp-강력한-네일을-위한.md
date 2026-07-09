@@ -1,5 +1,5 @@
 ---
-title: "Gel 네일 polish와 UV lamp- 강력한 네일을 위한秘密"
+title: "Gel 네일 polish와 UV lamp- 강력한 네일을 위한"
 date: 2026-06-02T00:16:27.648+09:00
 slug: "gel-네일-polish와-uv-lamp-강력한-네일을-위한"
 description: "Gel 네일 polish와 UV lamp를 사용하여 매끄러운 finish와 강한 내구성을 제공하는 강력한 네일을 만드세요."
